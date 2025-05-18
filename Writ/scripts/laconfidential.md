@@ -52,4 +52,16 @@
         The KLEIG LIGHTS are out front. Valets hurry to park a
         line of elegant cars.
 
+                                MAYOR (V.O.)
+                    Ladies and gentlen, I give you
+                    the future of Los Angeles!
+
+        INT. HANCOCK PARK MANSION - BALLROOM - NIGHT
+
+        The MAYOR yanks a cloth to reveal a MODEL OF L.A. criss-
+        crossed by an elaborate FREEWAY SYSTEM. The CROWD oohs.
+        A COUNCILMAN claps. A SOCIETY MATRON nods her approval.
+
+        PIE
+
         
