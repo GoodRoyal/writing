@@ -7,7 +7,7 @@
                               John East
  
  
-                     Based on the novel by James Ellroy 
+                     Based on the novel by Elliot Ness
  
  
  
@@ -16,8 +16,8 @@
  
  
  
-                                                 November 16, 1995 
-                                                 Minor Revisions 
+                                                 May 18, 2025 
+                                                 First Draft
  
  
  
