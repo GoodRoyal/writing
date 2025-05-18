@@ -44,3 +44,12 @@
         possible.  A place where dreams come true.  As the sky 
         darkens, triple-kleig lights begin to sweep back and 
         forth.
+
+        ##2
+
+        EXT. MANSION (HANCOCK PARK) - NIGHT
+
+        The KLEIG LIGHTS are out front. Valets hurry to park a
+        line of elegant cars.
+
+        
