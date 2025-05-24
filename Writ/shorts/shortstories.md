@@ -1,5 +1,8 @@
 shortstories.md 
 
+to do
+pandoc
+
 ## 1
 
 unbundle
@@ -92,7 +95,27 @@ the plot irrelevant except for what doesn't make sense
 Im looking at reality as a director and at movies as a director and know
 the importance of strong bones. with strong bones i can zero out.
 
+then i returned and I skipped to good scenes, can't get over the netflix frames, are people in those trips!?
+
 ## 8
+
+sensor speak to us-
+sensor: me: Often I try to carry a thought my mother or father interrupts. feels as if they are 
+automatons programmed to keep the status quo
+
+Einstein seems to have had it great at Princeton...
+and at home.
+seems like a great life.
+how can it be made better?
+    better. the same ease everywhere. today the maple trees, tomorrow the Isle of Man, day after Mauritius, next day Katmandu, 2 years here or there, irrelevant where in terms of ease and flow, relevant in terms of new inputs for the thought process. auto thought via phone, audio or here or fellow human sensr now automatic. 
+    need skilled Jewish wife. partner in crime.
+    why Jewish wife... don't you know about !!!!!! 
+    I do know about !!!!! but I am not looking for !!!!!! I am requesting an Orca. Said Orca can hire out all fxs including herself. The point of said Orca is that I don't need to have these obvious thoughts, she can take over the setup and I can fucking think in peace.
+        because Im not going to use this as a source of drama
+        because my reaction to this unattended will be zenning out, zoharing out; you wanna make magick wrenches where you don't put up the factory and pay the light bills_ good luck with that.
+
+
+## 9
 
 
 
