@@ -43,6 +43,14 @@ better, who penetrates the whole?
 better, why/what/how/who/where/when-ideterminate....action/nonaction....objectt/nonobject
 objective; thought monitoring architecture
 purpose: better 61 outcomes, red team.
+    y
+        optimizing better is the core directive
+        finding and making betters is the branding game of life
+        appreciating betters 
+            by sensing 
+                impressions
+                distortions
+                variations
 
 character 14. Virgo. Green. Comedy.
 
