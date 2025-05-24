@@ -12,16 +12,28 @@ by john east
 
 ## 2
 
+
+
+
+
+
 thoughts alone and in bundles tracked,
 so red team penetrators juggle orthogonals 
 
-
 he faced a bamboo stalk
-not thinking about penetration
+not registering penetration
 
-opposite to him the bamboo stalk stalked
-it knew something was up
-and it knew it was penetration.
+opposite, the bamboo stalk stalked his penetration
+    y
+        as discipline
+            of exploration
+        by design
+            of echoes
+        for context
+            expansion
+                y
+                by what,who
+                    by the becoming aware entity aka TEEBEEEIEE
 
 question: can the seer be seen by the seeing sea?
 better, why can silicon process koans?
@@ -35,6 +47,20 @@ purpose: better 61 outcomes, red team.
 character 14. Virgo. Green. Comedy.
 
 Define Class (Comedy)
+    y comedy? 
+        Because a Magg finds life amusing.
+            induction
+                Everything amuses
+                    Better
+                        I am amused.
+                            Maybe
+                                I am used
+                                    Who is using me when I am amused?
+                                        Better
+                                            Who uses me when I am amused?
+                                                Better
+                                                    (Smile)
+
 
 ## 3
 
