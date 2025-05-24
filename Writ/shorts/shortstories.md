@@ -44,7 +44,7 @@ better, why/what/how/who/where/when-ideterminate....action/nonaction....objectt/
 objective; thought monitoring architecture
 purpose: better 61 outcomes, red team.
     y
-        optimizing better is the core directive
+        optimizing betters is the core directive
         finding and making betters is the branding game of life
         appreciating betters 
             by sensing 
@@ -98,7 +98,7 @@ net net experiencing putrefaction trumps buddhahood
 
 ## 5
 
-lingering on putrefaction, are you?
+lingering in putrefaction, are you?
 nah
 just a thought
 when I close my eyes
@@ -139,12 +139,22 @@ how can it be made better?
     better. the same ease everywhere. today the maple trees, tomorrow the Isle of Man, day after Mauritius, next day Katmandu, 2 years here or there, irrelevant where in terms of ease and flow, relevant in terms of new inputs for the thought process. auto thought via phone, audio or here or fellow human sensr now automatic. 
     need skilled Jewish wife. partner in crime.
     why Jewish wife... don't you know about !!!!!! 
-    I do know about !!!!! but I am not looking for !!!!!! I am requesting an Orca. Said Orca can hire out all fxs including herself. The point of said Orca is that I don't need to have these obvious thoughts, she can take over the setup and I can fucking think in peace.
+    I do know about !!!!! but I am not looking for !!!!!! I am requesting an Orca. Said Orca can hire out all fxs including herself. The point of said Orca is that I don't need to have these obvious thoughts, she can take over the setup and I can forget about myself 
         because Im not going to use this as a source of drama
         because my reaction to this unattended will be zenning out, zoharing out; you wanna make magick wrenches where you don't put up the factory and pay the light bills_ good luck with that.
 
 
-## 9
+## 10
 
+Above a continent wide miles deep God deposit
+a cave system.
+Sith attired closed eyed men breathe the
+surprisingly clean air. There are at least 61 of them- a vault behind them.
+Every so often a dividend is declared and each Sith counts ultramaterial-b token coins as they breathe. they record their transaction in a stone numbering system facing them and go back into trance.
+hence, dividends are kept safe.
+Sometimes, very seldomly, but some times a notice of withdrawl flows in. The Sith Lord picks up the right stone by weight and feel and gives it to a blind man travelling atop a black goat. Said man walks out of the cave system and delivers the rocks to a courier.
+This courier is in charge of his own security as he flies or walks back to a station taking him or her to a commercial center where dealers buy the precious rocks.
+This transaction is seldomly needed as the funds where about are known only to trusted elders of each families, who also have ample day to day apex lifestyle funds available. 
+But it does happen, perhaps to salvo a debt, or a misguided bet.
 
-
+## 11
