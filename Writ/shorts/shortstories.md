@@ -12,24 +12,19 @@ by john east
 
 ## 2
 
-every thought could be tracked. 
-when thoughts were bundled that was tracked too.
-free thinkers then
-used this method:
-create an attractive thought net
-give it energy and attention
-and maintain various tangents in view
-but not in thought
+thoughts alone and in bundles tracked,
+so red team penetrators juggle orthogonals 
 
-so our hero on Friday looked at a bamboo stalks
+
+he faced a bamboo stalk
 not thinking about penetration
 
-opposite to our hero the bamboo stalk stalked
+opposite to him the bamboo stalk stalked
 it knew something was up
 and it knew it was penetration.
 
-question: can an athlete win and loose a race at the same time?
-better, how does silicon process koans?
+question: can the seer be seen by the seeing sea?
+better, why can silicon process koans?
 
 koan: why penetrate what is whole?
 better, who penetrates the whole?
