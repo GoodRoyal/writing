@@ -8,13 +8,11 @@ pandoc
 unbundle
 by john east
 24 may 2025
-3 north of the equator
+3 degrees north of the equator
+
+no rights reserved.
 
 ## 2
-
-
-
-
 
 
 thoughts alone and in bundles tracked,
@@ -146,7 +144,7 @@ how can it be made better?
 
 ## 10
 
-Above a continent wide miles deep God deposit
+Above a continent wide miles deep Gold deposit
 a cave system.
 Sith attired closed eyed men breathe the
 surprisingly clean air. There are at least 61 of them- a vault behind them.
